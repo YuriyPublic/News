@@ -13,5 +13,5 @@
  
  [Schwarz-weiss-bar online](https://www.schwarz-weiss-bar.de/de)
  
- 
+ [Location at 20 Feb. 2023 04:20:59 PM](https://maps.google.com/maps?q=48.8099676,9.1718681)
   
