@@ -1,5 +1,5 @@
 # News
 - point 1
-  - [Zeltparty🍻]
+  - (36362)[Zeltparty🍻]
   - 
   # Introduction
