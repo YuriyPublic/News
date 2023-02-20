@@ -8,5 +8,8 @@
 [Home - Café Weiß](https://www.cafe-weiss.de/home/)
 ![](img.jpg)
   
- ###
+ ### Schwarz-Weiss-Bar
+ 
+ 
+ [- schwarz-weiss-bar online](https://www.schwarz-weiss-bar.de/de)
   
