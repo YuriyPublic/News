@@ -7,6 +7,10 @@
 ### Cafe Weiß
 ![](img.jpg)
 [www.cafe-weiss.de](https://www.cafe-weiss.de/home/)
+
+[Google maps](Cafe Weiß
+0711 244121
+https://maps.app.goo.gl/gP1uRK64nqKcqRVn9)
   
  ### Schwarz-Weiss-Bar
  ![](media.jpg)
