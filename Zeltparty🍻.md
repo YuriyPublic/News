@@ -1,5 +1,5 @@
 ---
-title: Zeltparty🍻
+title: Zeltparty
 ---
 
 123
