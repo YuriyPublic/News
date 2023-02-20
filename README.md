@@ -1,10 +1,12 @@
 [https://yuriypublic.github.io/News/](https://yuriypublic.github.io/News/)
 
-# Bars
+# The List
 
-## Cafe Weiß
+## Bars
+
+### Cafe Weiß
 [Home - Café Weiß](https://www.cafe-weiss.de/home/)
 ![](img.jpg)
   
-  - 
-  # Introduction
+ ###
+  
