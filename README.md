@@ -11,5 +11,5 @@
  ### Schwarz-Weiss-Bar
  
  
- [- schwarz-weiss-bar online](https://www.schwarz-weiss-bar.de/de)
+ [Schwarz-weiss-bar online](https://www.schwarz-weiss-bar.de/de)
   
