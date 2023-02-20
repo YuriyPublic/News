@@ -1,1 +1,0 @@
-[GitHub - YuriyPublic/News](https://github.com/YuriyPublic/News)
