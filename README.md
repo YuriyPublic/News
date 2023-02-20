@@ -8,7 +8,7 @@
 [www.cafe-weiss.de](https://www.cafe-weiss.de/home/)
 ![](img.jpg)
   
- ## Schwarz-Weiss-Bar
+ ### Schwarz-Weiss-Bar
  ![](media.jpg)
   [www.schwarz-weiss-bar.de](https://www.schwarz-weiss-bar.de/de)
 
