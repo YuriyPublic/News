@@ -10,7 +10,7 @@
 
 [Google maps](https://maps.app.goo.gl/gP1uRK64nqKcqRVn9)
   
- ### Schwarz-Weiss-Bar
+ ### Schwarz Weiss Bar
  ![](media.jpg)
   [www.schwarz-weiss-bar.de](https://www.schwarz-weiss-bar.de/de)
 
