@@ -12,4 +12,6 @@
  ![](media.jpg)
  
  [Schwarz-weiss-bar online](https://www.schwarz-weiss-bar.de/de)
+ 
+ 
   
