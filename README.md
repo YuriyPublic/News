@@ -4,16 +4,13 @@
 
 ## Bars
 
-### Cafe Weiß
-[Home - Café Weiß](https://www.cafe-weiss.de/home/)
+###Cafe Weiß
+[www.cafe-weiss.de](https://www.cafe-weiss.de/home/)
 ![](img.jpg)
   
- ### Schwarz-Weiss-Bar
+ ###Schwarz-Weiss-Bar
  ![](media.jpg)
- 
- [Schwarz-weiss-bar online](https://www.schwarz-weiss-bar.de/de)
- 
-[Location at 20 Feb. 2023 04:20:59 PM](https://maps.google.com/maps?q=48.8099676,9.1718681)
- 
-[Location at 20 Feb. 2023 04:20:59 PM](https://maps.app.goo.gl/XLB83ndpkPWW1k7q7)
+  [www.schwarz-weiss-bar.de](https://www.schwarz-weiss-bar.de/de)
+
+[Google Maps](https://maps.app.goo.gl/XLB83ndpkPWW1k7q7)
   
