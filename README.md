@@ -5,8 +5,8 @@
 ## Bars
 
 ### Cafe Weiß
-[www.cafe-weiss.de](https://www.cafe-weiss.de/home/)
 ![](img.jpg)
+[www.cafe-weiss.de](https://www.cafe-weiss.de/home/)
   
  ### Schwarz-Weiss-Bar
  ![](media.jpg)
