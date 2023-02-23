@@ -21,3 +21,6 @@
 
 ![Preview](https://i.ebayimg.com/images/g/cuIAAOSweG9j2k17/s-l1600.jpg)
 
+
+https://www.cjchilvers.com/blog/35-lessons-from-35-years-of-newsletter-publishing/
+
