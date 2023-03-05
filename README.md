@@ -1,26 +1,16 @@
-[https://yuriypublic.github.io/News/](https://yuriypublic.github.io/News/)
+---
+title: Tisch
+---
 
-# Kaffemaschine
-## Siebträger
-[Solis Siebträger Kaffeemaschine Gran Gusto, 58 mm Siebträger, 15 Bar, Wassertank](https://www.ebay.de/itm/364006953872) - 400 €
+23,5mm
 
-[Solis Barista Gran Gusto Siebträger Espressomaschine Siebträgermaschine 15 Bar](https://www.ebay.de/itm/304352140433) - 271 €
+![](camera_5611ba52-8252-478b-868b-93d40125b037.jpg)
 
-![Preview](https://i.ebayimg.com/images/g/pWYAAOSwGCxfyLhV/s-l1600.jpg)
+8mm
 
-[Espressomaschine Siebträger Maschine Barista Edelstahl Milchschaumdüse 20 Bar](https://www.ebay.de/itm/334668179851) - 159 €
+![](camera_a19bbd2c-0fff-4e27-8017-6c236ae59d10.jpg)
 
-![Preview](https://i.ebayimg.com/images/g/PqwAAOSwefpjtsgo/s-l1600.jpg)
-[BEEM ULTIMATE Espresso Siebträgermaschine edelstahl 20 bar barista cappuccino](https://www.ebay.de/itm/224979982797) - 150 €
-
-![Preview](https://i.ebayimg.com/images/g/3YEAAOSwMeNjclrJ/s-l1600.jpg)
-[BEEM ESPRESSO-PERFECT Espressomaschine Siebträger 20 bar mit Milchschaumdüse](https://www.ebay.de/itm/225251084193) - 130 €
-
-![Preview](https://i.ebayimg.com/images/g/FeQAAOSwIcVjckLr/s-l1600.jpg)
-[Espressomaschine 1350W 20 Bar Cappuccino Milchschaum Siebträger Retro Schwarz](https://www.ebay.de/itm/285129334496) - 105 €
-
-![Preview](https://i.ebayimg.com/images/g/cuIAAOSweG9j2k17/s-l1600.jpg)
+[(119 €/m²) Plexiglas®* Acrylglas** Zuschnitt Platte Fenster 3 mm diverse Farben | eBay](https://www.ebay.de/itm/192128044439?hash=item2cbbb94d97:g:s80AAOSwxEpYxS3x&amdata=enc%3AAQAHAAAA4Ndzs3cLzaY0thrrBvjsiHSdmbYugk3wB7XqHsCy%2FB%2B9aGjrungNJXDue%2Ft8sqLj%2Bn%2FeiaX6sMGe%2BbF2TnpruPnGUPzCMNWzD2K2N8gvGWsrZ%2Bi1bm%2BlxVt3vuy5bL%2FNPfT2Q39ig4a20dksonQFJjxngCkgiNZD1%2FMg19heQEv96Xs4ntCKVQFcqgLMtca%2FMcEaIdHdWGMKM%2Fv2FAwQm3EW9t9LQjZymmwt%2BwC2BcCHM9qGv17gtw4AVTJIRXoBzLAooYL3Lc0OCjB5Hr5hugbkYM0C8amWJ7r0xaaqfAsr%7Ctkp%3ABk9SR9rf-KrWYQ)
 
 
-https://www.cjchilvers.com/blog/35-lessons-from-35-years-of-newsletter-publishing/
-
+![](Screenshot_20230305_175316_DuckDuckGo.jpg)
